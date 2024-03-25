@@ -1,6 +1,6 @@
 - 👋 Hi, I’m ROBIe
 - 👀 I’m interested in ..anything /anyone I don't know
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning  how to code hence am a beginner 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...robinsonmacharia17@gmail.com/+254708349182
 - 😄 Pronouns: ...HE all the way
